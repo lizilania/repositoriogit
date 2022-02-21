@@ -1,1 +1,1 @@
-TESTE
+foça e determinasao querida 
